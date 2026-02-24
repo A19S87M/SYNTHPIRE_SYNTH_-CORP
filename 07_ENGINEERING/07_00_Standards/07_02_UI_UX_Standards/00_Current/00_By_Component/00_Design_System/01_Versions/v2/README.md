@@ -1,0 +1,2 @@
+﻿# v2
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\07_ENGINEERING\07_00_Standards\07_02_UI_UX_Standards\00_Current\00_By_Component\00_Design_System\01_Versions\v2.

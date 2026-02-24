@@ -1,0 +1,2 @@
+﻿# 00_By_Region
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\12_SALES\12_00_Pricing\00_Current\00_By_Tier\01_Pro\00_By_Region.

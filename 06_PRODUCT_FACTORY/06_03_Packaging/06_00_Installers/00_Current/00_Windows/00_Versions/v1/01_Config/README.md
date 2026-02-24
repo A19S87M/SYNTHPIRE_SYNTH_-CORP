@@ -1,0 +1,2 @@
+﻿# 01_Config
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\06_PRODUCT_FACTORY\06_03_Packaging\06_00_Installers\00_Current\00_Windows\00_Versions\v1\01_Config.

@@ -1,0 +1,2 @@
+﻿# 00_Q1
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\11_GROWTH\11_01_PR\02_Clippings\00_Current\00_By_Year\2026\00_Q1.

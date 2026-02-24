@@ -1,0 +1,2 @@
+﻿# 00_Q3
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\02_LEGAL\02_00_IP\02_01_Trademarks\00_Current\01_Filings\00_By_Year\2026\00_Q3.

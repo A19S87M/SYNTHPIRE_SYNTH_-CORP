@@ -1,0 +1,2 @@
+﻿# 01_syn-core
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\11_GROWTH\11_01_PR\00_Press_Releases\00_Current\00_By_Year\2026\00_Q1\00_By_Product\01_syn-core.

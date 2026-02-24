@@ -1,0 +1,2 @@
+﻿# 00_Rules
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\09_SECURITY\09_07_Security_Tools\00_Current\00_By_Category\01_IDS_IPS\00_Snort\00_Rules.

@@ -1,0 +1,2 @@
+﻿# 01_Delta
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\99_ARCHIVE\99_01_2026\00_Projects\01_Delta.

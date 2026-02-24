@@ -1,0 +1,2 @@
+﻿# 00_Competitor_A
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\06_PRODUCT_FACTORY\06_00_Brainstorm\06_00_Concepts\00_Current\02_Competitor_Analysis\00_Competitor_A.

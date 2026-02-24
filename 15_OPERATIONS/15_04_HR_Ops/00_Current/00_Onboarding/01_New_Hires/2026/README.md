@@ -1,0 +1,2 @@
+﻿# 2026
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\15_OPERATIONS\15_04_HR_Ops\00_Current\00_Onboarding\01_New_Hires\2026.

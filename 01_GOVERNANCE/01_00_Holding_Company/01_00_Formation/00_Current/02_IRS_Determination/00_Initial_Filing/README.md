@@ -1,0 +1,2 @@
+﻿# 00_Initial_Filing
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\01_GOVERNANCE\01_00_Holding_Company\01_00_Formation\00_Current\02_IRS_Determination\00_Initial_Filing.

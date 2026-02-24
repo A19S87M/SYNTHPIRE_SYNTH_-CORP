@@ -1,0 +1,2 @@
+﻿# 02_Allowed
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\02_LEGAL\02_00_IP\02_00_Patents\00_Current\00_Active\00_By_Year\2026\00_Q1\02_Allowed.

@@ -1,0 +1,2 @@
+﻿# 00_By_Shareholder
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\01_GOVERNANCE\01_01_Subsidiaries\01_00_SYN_STATION_Inc\01_01_Stock_Ledger\00_Current\01_Issued_Shares\00_By_Shareholder.

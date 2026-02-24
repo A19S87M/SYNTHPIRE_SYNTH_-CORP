@@ -1,0 +1,2 @@
+﻿# 02_Legal
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\99_ARCHIVE\99_02_2027\02_Legal.

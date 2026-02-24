@@ -1,0 +1,2 @@
+﻿# 01_Media_Kits
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\11_GROWTH\11_01_PR\01_Media_Kits.

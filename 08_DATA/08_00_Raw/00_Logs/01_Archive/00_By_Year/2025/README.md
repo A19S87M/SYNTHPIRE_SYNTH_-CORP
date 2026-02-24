@@ -1,0 +1,2 @@
+﻿# 2025
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\08_DATA\08_00_Raw\00_Logs\01_Archive\00_By_Year\2025.

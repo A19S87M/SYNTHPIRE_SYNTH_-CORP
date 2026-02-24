@@ -1,0 +1,2 @@
+﻿# 01_By_Region
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\00_SYSTEM\00_00_Taxonomy\00_01_ID_Registries\00_00_Product_Codes\00_Current\00_Active\01_By_Region.

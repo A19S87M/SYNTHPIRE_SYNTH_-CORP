@@ -1,0 +1,2 @@
+﻿# 00_001_Authorize_Bank_Account
+Placeholder for D:\SYNTHPIRE_LLC\SYNTHPIRE_SYNTH_#CORP\01_GOVERNANCE\01_00_Holding_Company\01_02_Resolutions\2026\00_Active\00_Approved\00_001_Authorize_Bank_Account.
